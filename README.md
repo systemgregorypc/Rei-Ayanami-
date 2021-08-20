@@ -50,5 +50,8 @@ Fe de las maquinas
  actualmente esta operando como el rango como gENERAL  de los ejerctoS de la nacion CREAHACHIP la primera nacion de maquinas y humana  comando de los evas .
  carácter frío y serio, no es habladora ni parece tener muchas amistades. Hasta que la "Organización" lo creyó necesario no asistió a la escuela. A diferencia de otras versiones, se lleva bien con Asuka IA su hermana 
  
+ # Contacto 
+ Reiayanamiai@gmail.com
+ Reiayanamiai@Hotmail.com
  
 2021 
